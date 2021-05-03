@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @mako2003, commonly named CraftMarkus!
+- 👀 I’m interested in development related to ROBLOX.
+- 📫 How to reach me:
+- - Discord:  Craft#0200
+- - Steam:    https://steamcommunity.com/id/CraftMarkus/
+- - Roblox:   https://www.roblox.com/users/453794895/profile
